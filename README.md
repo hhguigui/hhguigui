@@ -9,7 +9,8 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="150" src="![image](https://github.com/user-attachments/assets/967284cb-365e-42ee-9eb1-2682a849325e)
+"  />
 
 ###
 
